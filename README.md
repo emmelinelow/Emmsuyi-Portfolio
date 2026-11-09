@@ -1,2 +1,2 @@
-# Emmsuyi-Portfolio
+# Emmsuyi
 Emmsuyi Creator &amp; Brand Diagnosis Portfolio
